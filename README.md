@@ -1,1 +1,1 @@
-# SethKraKray.github.io
+# This is SethKraKray's GitHub for fun!
